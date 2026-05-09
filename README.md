@@ -1,4 +1,4 @@
-# Hi there, I'm krookzmane 👋
+# Hi there, I'm X-EON ! 👋
 
 🇫🇷 **From France !**  
 🎓 **High School Student**  
